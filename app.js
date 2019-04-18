@@ -1,3 +1,8 @@
 qwertyuiopasdfghjkl
 asdfghjk
 zxcvbhnmghjk
+sdfghjkl
+serdfcvghaabchsj v sdsnj  j
+dqfcwgdcqwgdvwhgfvwhg
+dbhw wehefvwehefv
+njewfb
